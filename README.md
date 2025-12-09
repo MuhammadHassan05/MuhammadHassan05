@@ -7,7 +7,7 @@
 
 ## 🌐 Connect With Me
 - 📧 Email: **hassannawab898@gmail.com**
-- 💼 LinkedIn: [*Add your LinkedIn link here*](http://www.linkedin.com/in/muhammad-hassan-6b289426a/)
+- 💼 LinkedIn: (http://www.linkedin.com/in/muhammad-hassan-6b289426a/)
 - 🎨 Behance: https://www.behance.net/muhammadhassan501  
 
 ---
